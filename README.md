@@ -1,4 +1,4 @@
-# Hey Everyone! I'm Raju Aamanchi(https://github.com/Raju-Aamanchi-124) <img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
+# Hey Everyone! I'm Raju Aamanchi(https://github.com/RajuAamanchi) <img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
 
 
 ## 💫 About Me:
